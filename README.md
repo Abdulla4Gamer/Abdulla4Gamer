@@ -4,5 +4,6 @@ My name is Abdulla And i am A begginer coder who want to make people happy
 
 [Twitter](https://twitter.com/Abdulla4Gamer)
 
-**Language Tools
-![image](https://camo.githubusercontent.com/27480c90b7f92ea1405594b9e98e151b776c0830e3bb2d80b92656c342bfdf09/68747470733a2f2f692e696d6775722e636f6d2f4c775364416c452e706e67)
+**Language Tools**
+![image](https://user-images.githubusercontent.com/79129891/109408109-8139bf00-7997-11eb-970d-7767014febf3.png)
+
